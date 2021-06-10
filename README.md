@@ -1,2 +1,0 @@
-# op-geld-beluste-media
-2002-2021
